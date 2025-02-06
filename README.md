@@ -6,3 +6,9 @@
 # [hikasa 1.0](https://files.catbox.moe/hzpal4.osk)
 ![](https://files.catbox.moe/jkmt2k.png)
 
+# [hikasa 2.0](https://files.catbox.moe/xclyyw.osk)
+![](https://files.catbox.moe/hjjaj9.png)
+
+# [hikasa LR2](https://files.catbox.moe/9w96hx.osk)
+![](https://files.catbox.moe/nv0q1p.png)
+
